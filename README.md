@@ -22,7 +22,7 @@ This website showcases my best pieces, commission details, and items available f
 ## 📬 Contact Me:
 
 - **Instagram**: [@priyadarshini_arts225](https://www.instagram.com/priyadarshini_arts225/)  
-- **Email**: priyadarshini22@gmail.com
+- **Email**: varmanipriyadarshini22@gmail.com
 
 ---
 
